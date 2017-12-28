@@ -1,0 +1,2 @@
+# kertajaya
+sitemap blogspot
